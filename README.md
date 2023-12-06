@@ -1,2 +1,2 @@
-# **TeaTime!**
-All of Atenean Chismis right before your eyes!
+# **Seventeen**
+## One of the greatest self-producing kpop groups in the world!
