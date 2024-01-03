@@ -99,7 +99,7 @@ When he was in middle school, he had an interest to learn to play the guitar so 
 
 He was street-cast by a talent agent while he was attending middle school. Mingyu is the tallest member of Seventeen with a height of 187 cm (6'2").
 
-﻿## **Vernon**
+## **Vernon**
 
  ![vampire](https://www.rollingstone.com/wp-content/uploads/2022/12/seventeen-vernon-1351200709.jpg?w=1581&h=1054&crop=1)
 
