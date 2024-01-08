@@ -151,6 +151,8 @@ His father was a dance instructor so from a young age Dino was very interested i
 
 The Vocal Group contains the final 5 of the 13 members of Seventeen, namely; Jeonghan, Joshua, Woozi, DK, and Seungkwano. Their niche is, of course, their powerful singing skills and vocals. They are great singers and mainly focus on it but they also show powerful performances in rap and dancing too. Let's get to know them one by one!
 
+![singing](https://qph.cf2.quoracdn.net/main-qimg-7e49f746e3389a73da35677a1b334108-lq)
+
 
 
 
