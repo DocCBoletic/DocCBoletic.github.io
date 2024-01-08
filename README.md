@@ -14,7 +14,7 @@ The name of their fandom is Carat. On February 5 ~ February 12, 2016, SEVENTEEN 
 
 On February 14, 2016, Seventeen held an exclusive concert 'LIKE SEVENTEEN - Boys Wish' where they revealed their official fan club name, following their performances for "Rock," "NO F.U.N" and "Mansae." Once the performance was over, Leader S.Coups said, "We have an announcement. You guys made us shine so bright. So you guys are now going to be our CARAT."
 
-![caratdaw](https://static.wikia.nocookie.net/girlgroup/images/0/08/Official_Fanclub_CARAT_2021.jpg/revision/latest?cb=20210918034757)
+![caratdaw](https://cdn-contents.weverseshop.io/public/shop/8cbcd523035c896eb36dbaaac83350e9.png?q=95&w=720)
 
 ![1stepisode](https://upload.wikimedia.org/wikipedia/en/2/21/Seventeen-17_Carat_%28EP%29.jpg)
 
@@ -75,6 +75,8 @@ Again, Seventeen is composed of 13 members, who are divided into three groups; *
 
 The Hip-Hop Group contains 4 of the 13 members of Seventeen, namely; S.Coups, Wonwoo, Mingyu, and Vernon. They mainly handle the rap or the fast part of the song but they still have powerful vocals and amazing performances. Let's get to know them one by one!
 
+![hiphop](https://6.soompi.io/wp-content/uploads/image/13038ac87f3a4f608911cd61dc5fc4ba/dummy.jpeg?s=900x600&e=t)
+
 ## **S.Coups**
 
 ![leaderninda](https://i0.wp.com/netizensreport.com/wp-content/uploads/2023/07/SEVENTEENs-S.Coups-wont-participate-in-Your-Choice-promotions-due-to-health-reasons-.jpg?fit=620%2C450&ssl=1)
@@ -101,7 +103,7 @@ He was street-cast by a talent agent while he was attending middle school. Mingy
 
 ## **Vernon**
 
- ![vampire](https://www.rollingstone.com/wp-content/uploads/2022/12/seventeen-vernon-1351200709.jpg?w=1581&h=1054&crop=1)
+ ![vampire](https://i.mydramalist.com/XNe1X_5f.jpg)
 
  **Vernon** (Korean: 버논) also known as Choi Hansol (Korean: 최한솔) was born on February 18, 1998. He is currently 25 years old. He is one of the main rappers of SEVENTEEN and part of the HIP-HOP sub-team.
 
@@ -111,7 +113,15 @@ His father is Korean and his mother is French-American (ethnicity) but from Miam
 
 The Performance Group contains another 4 of the 13 members of Seventeen, namely; Hoshi, Jun, Mighao, and Dino. Their niche is doing the dancing part or the performance parts of the song. They are great dancers and mainly focus on it but they also exhibit wonderful vocals and can also show a great performance in rap too. Let's get to know them one by one!
 
+![pogigroup](https://i.pinimg.com/736x/37/f5/e2/37f5e2fe4ccd7b81e83f713556a495a8.jpg)
+
 ## **Hoshi**
+
+![tigerdaw](https://i.scdn.co/image/ab6761610000e5ebe5957f0e648d81871e5b15d4)
+
+**Hoshi** (Korean: 호시) also known as Kwon Soo Young (Korean: 권순영) was born on June 15, 1996. He is currently 27 years old. He is one of the main dancers in the group. He is also the leader of the performance sub-unit. He creates a lot of SEVENTEEN’s choreographies. 
+
+When he was a student, he joined a dance club after being inspired to become a singer. His inspiration started after listening to SHINee.
 
 
 
