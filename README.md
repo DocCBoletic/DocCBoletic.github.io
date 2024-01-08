@@ -89,7 +89,7 @@ His name S.Coups comes from the combination of the first initial of his real nam
 
 ![pogingrapper](https://i.mydramalist.com/Eo8Zb_5f.jpg)
 
-**Wonwoo** (Korean: 원우) aka Jeon Wonwoo (Korean: 전원우) was born on July 17, 1996. He is 27 years old and one of the sub-rappers of SEVENTEEN. He is part of the HIP-HOP team.
+**Wonwoo** (Korean: 원우) aka Jeon Wonwoo (Korean: 전원우) was born on July 17, 1996. He is a 27-year-old Korean and one of the sub-rappers of SEVENTEEN. He is part of the HIP-HOP team.
 
 When he was in middle school, he had an interest to learn to play the guitar so he joined a music academy with his friend as a hobby. Pledis Entertainment was, coincidentally, holding an audition there and Wonwoo passed.
 
@@ -97,7 +97,7 @@ When he was in middle school, he had an interest to learn to play the guitar so 
 
 ![mingyu](https://www.nme.com/wp-content/uploads/2023/10/seventeen-mingyu-god-of-music-line-distribution-696x442.jpg)
 
-**Mingyu** (Korean: 민규) also known as Kim Mingyu (Korean: 김민규) was born on April 6, 1997. He is currently 26 years old and one of the sub-rappers of SEVENTEEN. He is part of the HIP-HOP team.
+**Mingyu** (Korean: 민규) also known as Kim Mingyu (Korean: 김민규) was born on April 6, 1997. He is currently a 26-year-old Korean and one of the sub-rappers of SEVENTEEN. He is part of the HIP-HOP team.
 
 He was street-cast by a talent agent while he was attending middle school. Mingyu is the tallest member of Seventeen with a height of 187 cm (6'2").
 
@@ -105,7 +105,7 @@ He was street-cast by a talent agent while he was attending middle school. Mingy
 
  ![vampire](https://i.mydramalist.com/XNe1X_5f.jpg)
 
- **Vernon** (Korean: 버논) also known as Choi Hansol (Korean: 최한솔) was born on February 18, 1998. He is currently 25 years old. He is one of the main rappers of SEVENTEEN and part of the HIP-HOP sub-team.
+ **Vernon** (Korean: 버논) also known as Choi Hansol (Korean: 최한솔) was born on February 18, 1998. He is Korean-American and is currently 25 years old. He is one of the main rappers of SEVENTEEN and part of the HIP-HOP sub-team.
 
 His father is Korean and his mother is French-American (ethnicity) but from Miami, Florida. Vernon was born in New York, USA, and moved to Korea with his family at the age of five. He was street cast while on the subway when he was in middle school. He joined Pledis in 2012.
 
@@ -119,9 +119,52 @@ The Performance Group contains another 4 of the 13 members of Seventeen, namely;
 
 ![tigerdaw](https://i.scdn.co/image/ab6761610000e5ebe5957f0e648d81871e5b15d4)
 
-**Hoshi** (Korean: 호시) also known as Kwon Soo Young (Korean: 권순영) was born on June 15, 1996. He is currently 27 years old. He is one of the main dancers in the group. He is also the leader of the performance sub-unit. He creates a lot of SEVENTEEN’s choreographies. 
+**Hoshi** (Korean: 호시) also known as Kwon Soo Young (Korean: 권순영) was born on June 15, 1996. He is currently a 27-year-old Korean. He is one of the main dancers in the group. He is also the leader of the performance sub-unit. He creates a lot of SEVENTEEN’s choreographies. 
 
 When he was a student, he joined a dance club after being inspired to become a singer. His inspiration started after listening to SHINee.
+
+## **Jun**
+
+![pogingbias](https://lh3.googleusercontent.com/Fp_5OsVThPam2RzKyJf2HzjU3u6yrOeNExmhua-UJQCSzNC2cMj0EEcslb7cnivfB1BZEsYPDtQba4WjLqFP-b--WwdhaZoY=w960-rj-nu-e365)
+
+**Jun** (Korean: 준) also known as Moon Junhui (Korean: 문준휘) or Wen Junhui (Chinese: 文俊辉) was born on June 10, 1996. He is currently 27 years old. He is a Chinese singer-songwriter and actor and a member of the boy group SEVENTEEN and its performance team.
+
+He is from Guandong, China. He started as a child actor and learned martial arts when he was a kid. He sometimes can look like a mannequin because of his body proportions (tall, long arms and legs, and wide shoulders).
+
+## **The8**
+
+![pogingchinesedaw](https://upload.wikimedia.org/wikipedia/commons/7/7c/THE_8_210925.png)
+
+**The8** (Korean: 디에잇) also known as Seo Myung-ho (Korean: 서명호) or Xu Minghao (Chinese: 徐明浩) was born on November 7, 1997. He is currently 26 years old. He is a Chinese singer-songwriter and actor and a member of the boy group SEVENTEEN and its performance team.
+
+He is one of the Chinese members of the group. He holds the position of sub-vocalist and lead dancer. He is also part of the performance sub-unit. His name, The8, is inspired by the number eight, which is a symbol of luck in Chinese culture.
+
+## **Dino**
+
+![sibunso](https://6.soompi.io/wp-content/uploads/image/dda94e86b61f4e1698c0604199e8f311/dummy.jpeg?s=900x600&e=t)
+
+**Dino** (Korean: 디노) also known as Lee Chan (Korean: 이찬) was born on February 11, 1999. He is currently 24 years old. He is a South Korean rapper and singer-songwriter and the maknae (youngest) of the boy group SEVENTEEN and its performance team.
+
+His father was a dance instructor so from a young age Dino was very interested in dancing. He started to go to his father’s dance academy at the age of 3 or 4. He has very good stamina because of his dancing experience.
+
+## **The Vocal Group**
+
+The Vocal Group contains the final 5 of the 13 members of Seventeen, namely; Jeonghan, Joshua, Woozi, DK, and Seungkwano. Their niche is, of course, their powerful singing skills and vocals. They are great singers and mainly focus on it but they also show powerful performances in rap and dancing too. Let's get to know them one by one!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
