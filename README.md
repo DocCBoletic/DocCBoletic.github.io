@@ -42,6 +42,7 @@ Spotify - https://open.spotify.com/artist/7nqOGRxlXj7N2JYbgNEjYH
 the group released their eleventh extended play "Seventeenth Heaven", on October 23, by announcing their upcoming street pop-up events called Seventeen Street in cities all over the world. The EP had over 5.2 million pre-orders, making it the most pre-ordered K-pop album in history. On November 29, the group earned its first MAMA Awards daesang (the greatest award)  for Album of the Year. 
 
 ![album1](https://staticg.sportskeeda.com/editor/2023/10/8a0fe-16980762639133-1920.jpg)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/1rE0Gy69MFUh4GuXafWd0f?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ---
 **HERE ARE A LIST OF VIDEOS TO SHOWCASE THEIR POWERFUL TALENT**
@@ -143,7 +144,7 @@ He is one of the Chinese members of the group. He holds the position of sub-voca
 
 ![sibunso](https://6.soompi.io/wp-content/uploads/image/dda94e86b61f4e1698c0604199e8f311/dummy.jpeg?s=900x600&e=t)
 
-**Dino** (Korean: 디노) also known as Lee Chan (Korean: 이찬) was born on February 11, 1999. He is currently 24 years old. He is a South Korean rapper and singer-songwriter and the maknae (youngest) of the boy group SEVENTEEN and its performance team.
+**Dino** (Korean: 디노) also known as Lee Chan (Korean: 이찬) was born on February 11, 1999. He is currently 24 years old. He is a South Korean rapper, singer-songwriter, and the maknae (youngest) of the boy group SEVENTEEN and its performance team.
 
 His father was a dance instructor so from a young age Dino was very interested in dancing. He started to go to his father’s dance academy at the age of 3 or 4. He has very good stamina because of his dancing experience.
 
@@ -153,15 +154,49 @@ The Vocal Group contains the final 5 of the 13 members of Seventeen, namely; Jeo
 
 ![singing](https://qph.cf2.quoracdn.net/main-qimg-7e49f746e3389a73da35677a1b334108-lq)
 
+## **Woozi**
 
+![khian](https://qph.cf2.quoracdn.net/main-qimg-ceb5e54abbfb775e8edafbde4cd4d940-lq)
 
+**Woozi** (Korean: 우지) also known as Lee Jihoon (Korean: 이지훈) was born on November 22, 1996. He is currently 27 years old. He is a South Korean singer, songwriter, producer, and the leader of the Vocal Team.
 
+Despite being the shortest member at 164 cm (5'5"), he is also the most gluttonous member of Seventeen and basically eats a lot without gaining much weight.
 
+## **Jeonghan**
 
+![pogi?](https://www.billboard.com/wp-content/uploads/2022/04/Jeonghan-from-SEVENTEEN-2021-billboard-1548.jpg?w=942&h=623&crop=1)
 
+**Jeonghan** (Korean: 정한) also known as Yoon Jeonghan (Korean: 윤정한) was born on October 4, 1995. He is currently 28 years old. He is a South Korean singer and is one of the sub-vocalists of SEVENTEEN.
 
+He is very good at sports and is considered one of the best athletes among the other members. He is the only member in Seventeen to have graduated from a science course.
 
+## **Joshua**
 
+![pogitlgamerkanopa](https://www.allkpop.com/upload/2023/12/content/130200/1702450821-seventeen-joshua-01.jpg)
+
+**Joshua** (Korean: 조슈아) also known as Joshua Hong or Hong Jisoo (Korean: 홍지수) was born on December 30, 1995. He is currently 28 years old. He is a South Korean-American singer and is one of the sub-vocalists of SEVENTEEN.
+
+He was cast by a talent agent in LA, USA while attending an event in Korea-town. He didn’t know how to read and write Korean when he first moved to Korea from the United States.
+
+## **DK**
+
+![DK](https://unnielooks.com/cdn/shop/articles/DK.webp?v=1679821982)
+
+**DK or Dokyeom** (Korean: 도겸) also known as Lee Seokmin (Korean: 이석민) was born on February 18, 1997. He is currently 26 years old. He is currently a South Korean singer and is one of the main vocalists of SEVENTEEN. 
+
+He and Vernon share the same birthday (on Feb 18) and is allergic to cats.
+
+## **Seungkwan**
+
+![etotlgleader](https://6.soompi.io/wp-content/uploads/image/20230816125030_Seungkwan.jpg?s=900x600&e=t)
+
+**Seungkwan** (Korean: 승관) also known as Boo Seungkwan (Korean: 부승관) was born on January 16, 1998. He is currently 26 years old. He is a South Korean singer, and songwriter, and is one of the main vocalists of Seventeen.
+
+He is also a good rapper. He has a strong attachment to his hometown, Jeju Island. He has, in fact, a Jeju accent. One of his dreams was to become a radio DJ.
+
+---
+
+## **THANK YOU FOR READING BAOUT SEVENTEEN! HOPE YOU HAD A GOOD TIME OR FIND A NEW INTEREST IN THIS GROUP! HOPING YOU WELL WISHES, CARLO!**
 
 
 
